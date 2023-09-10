@@ -1,0 +1,1 @@
+bölüm sonu çalışması
